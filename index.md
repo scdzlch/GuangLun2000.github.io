@@ -8,7 +8,7 @@ Here is **Chen Luo**.
 
 ## Academic Background
 
-- **Sep 2022 - Future：Sichuan University
+- Sep 2022 - Future：Sichuan University
 - **June 2018 - Nov 2022:** Sichuan University
 
 ---
